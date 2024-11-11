@@ -1,1 +1,11 @@
-# cap
+# academia cap
+- academia dentro da arena da baixada
+- uma academia para athleticanos que tem densconto pra sócios 
+- treine com vista pro campo 
+- em dia de jogo a academia funciona até o meio dia 
+- descontos até 70%
+- personais em tempo integral
+- aulas de dança,power e jump
+- aceitamo gym pass
+- temos plano mensais e anuais
+- pacote de 80 rais com uma aula inclusa 
