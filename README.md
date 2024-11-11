@@ -1,4 +1,4 @@
-# academia cap
+# academia Cap
 - academia dentro da arena da baixada
 - uma academia para athleticanos que tem densconto pra sócios 
 - treine com vista pro campo 
